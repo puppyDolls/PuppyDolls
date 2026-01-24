@@ -1,3 +1,7 @@
 ![](https://files.catbox.moe/n5oaym.png)
 
 ⠀⠀⠀⠀⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=8E3B71&label=branzylings&style=plastic) ![](https://files.catbox.moe/tfm7pu.gif) 
+⠀
+⠀
+⠀
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hbfgw2xd5ruhjuuzlyrqccvrfe&cover_image=true&theme=novatorem&show_offline=false&background_color=6d2dcc&interchange=false&profanity=false&bar_color=a13dcc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
