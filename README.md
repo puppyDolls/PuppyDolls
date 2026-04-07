@@ -4,7 +4,7 @@
 ⠀
 ⠀
 ⠀
-![](https://i.postimg.cc/1tsSHF2F/Untitled520-20260407093418.png)
+<img src="https://i.postimg.cc/wBNZnBLC/Untitled520-20260407092325.png" width="200" align="center"> 
 ⠀
 ⠀
 ⠀
