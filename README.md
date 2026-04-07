@@ -5,7 +5,7 @@ FUCK REPOSITORY BRO UGGHHHHHHHHHHHHHH
 ⠀
 ⠀
 ⠀
-![](https://i.postimg.cc/wBNZnBLC/Untitled520-20260407092325.png)
+![](https://i.postimg.cc/wB3LBt0F/Untitled520-20260407092954.png)
 ⠀
 ⠀
 ⠀
